@@ -1,4 +1,5 @@
-# 40th-wgc-rescore
+# Re-Scoring of the Open Class - 40th World Gliding Championships, Poland 2026
+[Original Scores can be found here...](https://www.soaringspot.com/en_gb/wgc2026/results/open)
 
 With the recent upset (or lack thereof) in the final result for the Open class at the @<40th wgc>, there have been many ‘what-if’ theories circulating -
 
